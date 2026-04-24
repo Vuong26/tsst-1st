@@ -1,7 +1,6 @@
 
 
-https://github.com/user-attachments/assets/7487e3f1-15c0-4035-82af-16e1cb1cd6f3
-
+https://www.dropbox.com/scl/fi/238kwojikf4t27yyolis9/ssstwitter.com_1776842911320.mp4?rlkey=pvkubp6wgahtr0s1umtcvfnng&st=ju6a0sm4&dl=0
 
 
 
