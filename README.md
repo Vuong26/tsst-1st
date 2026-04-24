@@ -1,7 +1,4 @@
-
-
-[https://www.dropbox.com/scl/fi/238kwojikf4t27yyolis9/ssstwitter.com_1776842911320.mp4?rlkey=pvkubp6wgahtr0s1umtcvfnng&st=ju6a0sm4&dl=0](https://vlix.io/video/185b45ae4752a1e7d544/)
-
+https://raw.githubusercontent.com/Vuong26/tsst-1st/refs/heads/main/GRgyKrdi0xqlBV_Video%20GRgyKrdi0xqlBV%7E2.mp4
 
 
 
